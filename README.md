@@ -1,1 +1,2 @@
-<img width="1280" height="768" alt="New_Gay_Pride_Flag svg" src="https://github.com/user-attachments/assets/4d204056-5197-4ba9-a7c5-00b1f0aa5e54" />
+<img width="1206" height="923" alt="Screenshot 2025-09-21 231959" src="https://github.com/user-attachments/assets/9cb57c81-45a4-443e-9cde-91c6019d0215" />
+
